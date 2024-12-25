@@ -1,3 +1,7 @@
+
+
+https://github.com/user-attachments/assets/9a90ee94-0e68-4a02-8d4f-23938a383a51
+
 # 1
 
 https://github.com/KomaruSharik/1/assets/169384618/fd880d86-dc87-487a-b2aa-c0248ca53edc
