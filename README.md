@@ -30,3 +30,7 @@ https://github.com/user-attachments/assets/9d0c8244-8cb6-47ba-bb2f-622d7b7ddf7b
 
 
 <img width="600" height="262" alt="1762498981148" src="https://github.com/user-attachments/assets/08e57143-ead9-4e67-9a1a-f6e7c8698f69" />
+
+
+<img width="736" height="414" alt="photo_2026-05-25_00-49-39" src="https://github.com/user-attachments/assets/9bafac04-5cc0-4a79-9464-18b8c2da418e" />
+
